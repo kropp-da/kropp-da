@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @kropp-da aka Daniel and that's my work profile.
